@@ -1,1 +1,0 @@
-# adso_tina
